@@ -1,3 +1,0 @@
-This is my journal for CS2450
-
-August 27, 2025 - We are working on installing git. Quite painful if you ask me.
