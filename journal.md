@@ -16,3 +16,11 @@ fix it. Calculus is giving much less trouble but the homework is getting exponen
 have ChatGPT to reteach me the processes of calculus. Without AI, I would not be able to get by and think I should
 get rid of this dependancy. In CS-2810, next week, we will be moving up to learning C. I look forward to this as I
 have heard it has structure and looks way easier to read and write. Wish me luck!
+
+
+
+10/27/2025 - Subject: I haven't filled this out in the past few weeks unfortunately. I am getting to the point in the
+semester where I always experience a little bit of burn out and start losing motivation. I am hoping over thanksgiving
+break, I can regain some of that motivation I had towards the beginning of the semester. I have learned a lot in this
+class and in all of my other classes. Although my motivation and enthusiasm has faded a bit, I look forward to learning
+more about coding and how I can become a better computer scientist.
