@@ -24,3 +24,12 @@ semester where I always experience a little bit of burn out and start losing mot
 break, I can regain some of that motivation I had towards the beginning of the semester. I have learned a lot in this
 class and in all of my other classes. Although my motivation and enthusiasm has faded a bit, I look forward to learning
 more about coding and how I can become a better computer scientist.
+
+
+
+11/3/2025 - Subject: I need to learn how to not get so distracted. I have had a lot of things distracting me from school.
+Work stresses, my social life, lots of stress from friends moving away and leaving on missions, etc. I need to learn
+how to maintain my stress and get my schoolwork done. I have always had issues with getting things in on time and now
+it is worse than ever. Every once in a while, I do get a boost of motivation and during those time periods is when
+I get all of my stuff done. This semester, I have had a lot of pressure to make the most of my time with my friends as
+they are all server church missions as well as making new friends so I am not alone. I gotta LOCK IN!!!
