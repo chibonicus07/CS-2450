@@ -33,3 +33,10 @@ how to maintain my stress and get my schoolwork done. I have always had issues w
 it is worse than ever. Every once in a while, I do get a boost of motivation and during those time periods is when
 I get all of my stuff done. This semester, I have had a lot of pressure to make the most of my time with my friends as
 they are all server church missions as well as making new friends so I am not alone. I gotta LOCK IN!!!
+
+
+
+11/12/2025 - Subject: The end of the semester is finally coming! Unrelated to school, I am getting together with some
+coworkers today and we are having an oil changing party. We are also having a barbecue to further increase the masculinity.
+Jokes aside, I am learning an important skill and getting a ton of entertainment from it. School could be going a bit better,
+calculus has stopped giving me such a hard time but I have a lot of things to study for as the end of the semester approaches. 
