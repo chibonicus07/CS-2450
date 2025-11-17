@@ -40,3 +40,8 @@ they are all server church missions as well as making new friends so I am not al
 coworkers today and we are having an oil changing party. We are also having a barbecue to further increase the masculinity.
 Jokes aside, I am learning an important skill and getting a ton of entertainment from it. School could be going a bit better,
 calculus has stopped giving me such a hard time but I have a lot of things to study for as the end of the semester approaches. 
+
+11/17/2025 - Subject: I have no clue why I'm getting burned out. I've been burnt out the past little bit and my grades
+are showing it. I never know how to manage burnout but it always come towards the end of the semester and I find a way
+to pass all of my classes anyways. It is especially hard with all of life's distractions, I need to get better at setting
+goals for myself and focusing on them. I think goal setting will be my key to productivity and I hope it helps.
