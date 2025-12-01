@@ -45,3 +45,8 @@ calculus has stopped giving me such a hard time but I have a lot of things to st
 are showing it. I never know how to manage burnout but it always come towards the end of the semester and I find a way
 to pass all of my classes anyways. It is especially hard with all of life's distractions, I need to get better at setting
 goals for myself and focusing on them. I think goal setting will be my key to productivity and I hope it helps.
+
+12/1/2025 - Subject: Thanksgiving break. Last week was thanksgiving break and it gave me a much needed break to recharge before
+finals week. This week, I intend on studying hard for finals so I can pass all of my classes. I am not too worried about finals
+but they are always intimidating. The only final I am really worried about is the final in calculus but I only have to pass the
+final to pass the class. I look forward to next semester where I have less classes to worry about and more time to do homework.
